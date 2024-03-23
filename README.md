@@ -1,7 +1,11 @@
 Name: Sergiy Kuchuryan
+
 Contact Information:
+
 Phone: +380999664911
+
 Email: Kserghei2103@gmail.com
+
 Address: 123 Frunze Street, Chernivtsi, Ukraine
 
 Professional Objective:
